@@ -23,5 +23,5 @@ In 2016, Google's AlphaGo made headlines by defeating Lee Sedol, one of the worl
 ### Get in Touch!
 
 📧 Email: akilands68@gmail.com  
-🔗 LinkedIn: [Connect with me](www.linkedin.com/in/akilan-s-48a319299)
+🔗 LinkedIn:(www.linkedin.com/in/akilan-s-48a319299)
 
